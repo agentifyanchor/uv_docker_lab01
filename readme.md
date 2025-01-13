@@ -1,1 +1,1 @@
-this lab01 refer to post cccx
+this lab01 refer to post post url
